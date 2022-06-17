@@ -1,0 +1,2 @@
+# salyazidepo
+alinin deposu
